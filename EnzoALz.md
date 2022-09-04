@@ -4,5 +4,12 @@
 
 MY NAME IS Enzo,
 I like play nerd games like dnd,
+~~DONT LOOK~~
+
+My favorite food is 
++ Lactose
 ## [My favorite website](http://www.godhatesshrimp.com/)
 ### [My favorite song](https://open.spotify.com/track/5BKKy9fIJL5uM9fz1SnqyP?si=aad6c58641d44b2a)
+| Tables        | Are           | interesting  |
+| ------------- |:-------------:| -----:|
+| I want  | around | $1600 |
