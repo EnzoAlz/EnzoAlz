@@ -1,4 +1,5 @@
-# WOw Its mE
+# Wow its meeeeee
+![IMG-20220803-WA0000](https://user-images.githubusercontent.com/112556506/188307801-0f483ddb-5244-4b8b-9182-c48a13424141.jpg)
 MY NAME IS Enzo,
 I like play nerd games like dnd,
 Singing is fun,
